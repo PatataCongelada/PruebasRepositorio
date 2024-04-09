@@ -1,3 +1,1 @@
-Me gustan los caracoles
-
-Cuanto mejor para todos peor y cuanto peor para todos mejor 
+En verdad no me gustan los caracoles
